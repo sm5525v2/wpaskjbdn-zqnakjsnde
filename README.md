@@ -1,2 +1,2 @@
-# wpaskjbdn-zqnakjsnde.github.io
+# wpaskjbdn-zqnakjsnde
 wpaskjbdn zqnakjsnde for TAMU CSCE 670 SEO contest
